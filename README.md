@@ -1,0 +1,2 @@
+# tech
+I'm fresher.
